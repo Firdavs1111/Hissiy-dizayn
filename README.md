@@ -1,1 +1,1 @@
-# Hissiy-dizayn
+# dasturlash taminoti
